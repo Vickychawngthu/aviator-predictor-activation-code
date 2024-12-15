@@ -4,4 +4,5 @@
           Our tool's predictions are based on solid statistical modeling, such as probability curves or regression analysis, it could be presented as offering a "highly probable" or "high-confidence" forecast.
           To activate your aviator predictor app you'll be needing an activation code which we can provide.
           Just click the link : https://t.me/aviatorpredictoractivationcode
-          
+code. send me     
+okey
